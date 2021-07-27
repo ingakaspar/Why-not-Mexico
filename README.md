@@ -22,6 +22,6 @@ Let's just say that PM2.5 is claimed to be [dangerous  type of air pollution](ht
 Sad but true, wearing sandals is considered a lower class prerogative. So a good salon where you can get your nails done is hard to find.
 
 ## 5. Save your mom's nerves
-Explaining to grandma what do you do for a living is a challenge, but have you tried convincing your family you are going to Mexico to work and it is for a narco cartel? God forbid they did  watch Breaking bad or Ozark. A cartel map for no particular reason.
+Explaining to grandma what do you do for a living is a challenge, but have you tried convincing your family you are going to Mexico to work and it is NOT for a narco cartel? God forbid they did  watch Breaking bad or Ozark. A cartel map for no particular reason.
 ![_109325429_mexico_cartels_oct_22_10_19_map640-nc](https://user-images.githubusercontent.com/35688741/127236945-c8319137-ce8b-42e7-ac9b-e5cb18724c06.png)
 
