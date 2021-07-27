@@ -2,9 +2,6 @@
 ## 1. Noise 
 > Teresa Ramos Arreola, head of the Congress’ environment committee, described noise as a public health problem that can cause sleep disorders, stress, anxiety, depression and neurosis, and exacerbate some cardiovascular conditions.
 
-![pexels-photo-3049731](https://user-images.githubusercontent.com/35688741/127236926-d06759d4-05e1-40ce-8529-91382796f3a4.jpeg)
-![1](https://user-images.githubusercontent.com/35688741/127236930-a6037f00-333a-4494-9954-e4953faa5c02.jpeg)
-
 ## 2. Air
 Let's just say that PM2,5 is claimed to be [dangerious  type of air pollution](https://www.airveda.com/blog/what-is-pm2-5-and-why-is-it-important#:~:text=are%20some%20examples.-,PM2.,take%20place%20in%20the%20atmosphere.&text=5%20in%20the%20air.)
 *If gaining astma is not primer goal, you might consider another location.*
